@@ -3,3 +3,5 @@ All those who read this most probably would be here because they know me in one 
 All I expect in return is that if you gain from your project than you will pass that knowledge forward even if you are a introvert,geek or snob.
 Even if you don't agree with above point today. I agree to disagree. You are still welcome to learn here.
 Cheers ^_^
+
+P.S. Even I am not genius myself. Expectations can lead to disappointments.
